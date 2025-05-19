@@ -2,10 +2,10 @@
 
 ## About me :grin:
 
-_My name is **Cristian**, i'm from Italy and i'm just aiming to become a pro_ :boom:
-_I want to work with people all around the world and create unique things_ :star_struck: _(why not, also friendships)._
+_My name is **Cristian**, i'm from Italy and i'm just aiming to become a pro_ :boom:\
+_I want to work with people all around the world and create unique things (why not, also friendships)_ :star_struck:
 
-_I love **nature**, **music** and **sports**, indeed i have a lot of hobbies (i mainly practice breakdance_:man_cartwheeling:_)._
+_I love **nature**, **music** and **sports**, indeed i have a lot of hobbies ( i mainly practice breakdance_:man_cartwheeling:_)_
 
 ## To Do :dart:
 
